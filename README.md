@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Kaziakass
+- 👋 Hi, I’m @Luchi062
 - 👀 I’m interested into a coding
 - 🌱 I’m currently learning coding couse i am new to it
 - 💞️ I’m looking to collaborate on coding :)
